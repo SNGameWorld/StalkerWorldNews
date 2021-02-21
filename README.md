@@ -1,2 +1,2 @@
-# StalkerWorldNews
+# StalkerWorldNews.io
 Ururhrhrutiti
